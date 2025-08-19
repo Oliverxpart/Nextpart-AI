@@ -1,10 +1,9 @@
-# Nextpart AI  
+# [Nextpart AI - The Best NSFW AI Chatbot Platform](https://nextpart.ai)  
 ## Official website  
 https://nextpart.ai  
 ## Slogan  
-Feel the Pulse of AI - Seductive Intelligence, Captivating Experience, Beyond Human  
+Unfiltered NSFW AI Chat with lifelike AI characters. Create your dream AI Girlfriend and enjoy limitless, personalized interactions anytime, anywhere.
 ## Description  
-[Nextpart AI](https://nextpart.ai) is the next generation chat app powered by AI large language models, enabling human-like interactions between users and the AI models.  
-In Nextpart users define and chat with AI characters, each with customized appearance, personalities, and storylines. Users are free to explore their fantasies with the AI characters.  
-Potential chat scenarios are unlimited: roleplaying, relationships, love and sex, adventures, events, lifestyle... let the AI models surprise you.  
-Nextpart supports AI voice response and image generation from chat context, allows intimate conversations with AI models with no NSFW filter, in 14 languages.  
+[Nextpart AI](https://nextpart.ai) is an unrestricted NSFW AI Chatbot platform. Supported by AI large language models, it enables human-like interaction between users and AI models. 
+In Nextpart AI users define and chat with AI characters, each with customized appearance, personalities, and storylines. Users are free to explore their fantasies with the AI characters, including deep conversations, role-playing scenarios. 
+Nextpart AI supports voice response and image generation from chat context, allows intimate conversations with AI models with no NSFW filter, in 14 languages.  
