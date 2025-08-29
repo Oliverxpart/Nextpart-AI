@@ -1,4 +1,4 @@
-![Nextpart AI](https://nextpart.ai/public/img/blog/blog-63-1.webp)
+[![Nextpart AI](/homepage.png)](https://nextpart.ai)  
 # [Nextpart AI - The Best NSFW AI Chatbot Platform](https://nextpart.ai)  
 ## Official website  
 https://nextpart.ai  
